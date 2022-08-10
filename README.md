@@ -1,2 +1,4 @@
 # MTRmods
-免费的Minecrafttransitrailways下载网，还可以推荐mods
+免费的Minecrafttransitrailways下载网，还可以推荐好的MTR服务器
+ps:mod下载正在向作者询问授权
+有问题+q3480335233
